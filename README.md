@@ -1,0 +1,2 @@
+# Sanjith
+I have a website 3DTrix. 3DTrix is known as one of the Top 10 animation companies in Bangalore, we like to pass on your musings and examinations in a compelling manner Either it is the calm influxes of the sea, some piece of a tree swaying, any improvement stands isolated for us. Why not use it to address your clients furthermore? We at 3DTrix, help you with satisfying just that. we help you in bringing inert characters to spring up by taking the administrations of outstanding among other Animation studios in Bangalore.
